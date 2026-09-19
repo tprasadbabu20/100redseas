@@ -1,0 +1,6 @@
+We have ameeting on monday letus discuss the main topics like
+company growth
+company union problems
+company leading major issues
+company targets
+company group organization
